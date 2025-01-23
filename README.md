@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Thinkburgers
+- 👀 I’m interested in Friday Night Funkin... and cats
+- 🌱 I’m currently learning Haxe
+- 💞️ I’m looking to collaborate on any FNF mods
+- 📫 How to reach me: dunno
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am bi
