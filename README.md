@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning Haxe
 - 💞️ I’m looking to collaborate on any FNF mods
 - 📫 How to reach me: dunno
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am bi
+- 😄 Pronouns: ask
+- ⚡ Fun fact: I am genderfluid
